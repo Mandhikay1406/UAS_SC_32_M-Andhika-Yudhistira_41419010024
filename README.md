@@ -1,0 +1,2 @@
+# UAS_SC_32_M-Andhika-Yudhistira_41419010024
+UAS_SC_32_M Andhika Yudhistira_41419010024
